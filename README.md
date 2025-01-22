@@ -27,5 +27,5 @@
 
 ### Connect with Me
 
-- [LinkedIn]([https://www.linkedin.com/in/aakritisingh](https://www.linkedin.com/in/aakriti-singh-0395602a3?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app))
+- [LinkedIn](https://www.linkedin.com/in/aakriti-singh-0395602a3?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 - [Instagram](https://www.instagram.com/aakriti4779)
