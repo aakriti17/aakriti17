@@ -7,7 +7,7 @@
 - 👯 I’m looking to collaborate on: Open Source Projects, Web Development Projects and cyber securtiy projects
 - 🤔 I’m looking for help with: Advanced Machine Learning Techniques
 - 💬 Ask me about: Python, JavaScript, React , php
-- 📫 How to reach me: aakriti296@outlook.com
+- 📫 How to reach me: aakriti2920@outlook.com
 - ⚡ Fun fact: I love hiking and exploring new trails!
 
 ### Skills & Tools
